@@ -1,2 +1,1 @@
-# comment
-comment
+https://www.resetday.top
